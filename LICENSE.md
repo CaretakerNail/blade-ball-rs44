@@ -1,4 +1,4 @@
-
+blade ball automatic Scripts is the best blade ball Script, featuring no cooldown and silent aim. Safe and powerful for all your needs.
 
 
 
